@@ -1,0 +1,1 @@
+I made this shoe drawing and was able to improve on my realistic sketching skills and my shading has improved massively. It was a challenge but I persevered and I got great results by the end of these 4 hours, and I'm really pround of how far I've gotten throughout my Arcade journey!!!
